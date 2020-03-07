@@ -1,1 +1,1 @@
-# JobAbilityDevelopmentPrivacyPolicy.github.io
+# 隐私策略网址
